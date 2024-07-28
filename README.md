@@ -3,6 +3,8 @@
 
 - 🌱 I’m currently learning **Full Stack Web Development**
 
+- 🧠 I'm an experienced **Flutter Developer**
+
 - ⚡ Fun fact **I know a lot about Indian Mythology and History and I am always willing to learn more.**
 
 <h3 align="left">Connect with me:</h3>
