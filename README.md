@@ -8,6 +8,8 @@
 - 📄 Know about my experiences [My resume](https://www.canva.com/design/DAGZV2e862Q/UUFrvzJV4Qpc1ZrBsMA5vQ/edit?utm_content=DAGZV2e862Q&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 - ⚡ Fun fact **I know a lot about Indian History and Mythology and I am always willing to learn more.**
+  
+- Lab Exam drive link [Link](https://drive.google.com/drive/folders/1-8w2suSe1gqR9HyArnzU7k0E-vUbQISU?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 
