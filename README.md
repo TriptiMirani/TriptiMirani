@@ -3,7 +3,7 @@
 
 
 # 💫 About Me:
-🔭 I’m currently working on **Open-Source Projects**<br>📄 Know about my experiences [My resume](https://www.canva.com/design/DAGZV2e862Q/UUFrvzJV4Qpc1ZrBsMA5vQ/edit?utm_content=DAGZV2e862Q&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)<br>⚡ Fun fact **I know a lot about Indian History and Mythology and I am always willing to learn more.**
+🔭 I’m currently working on **Open-Source Projects**<br>⚡ Fun fact **I know a lot about Indian History and Mythology and I am always willing to learn more.**
 
 
 ## 🌐 Socials:
